@@ -1,0 +1,1 @@
+# Lekcja-27.10-pazdiernik
